@@ -1,4 +1,4 @@
-# Natur Brilian Static Page #
+# Natur Brilian Static Page
 
 # Hi, welcome to my static page
 
