@@ -4,7 +4,7 @@
 
 I’m Liba Natur Brilian and also known as Natur or gingalibadeidara, a video editor and graphics designer with a deep passion for technology, art, music and content creator. When im not working i create vector and translating stuff.
 
-# ANOTHER SOCIAL MEDIA & CONTACT #
+# Another Social Media & Contact #
 
 If you have any questions, suggestions, or just want to chat, feel free to reach out to me via X, Discord or my another socmed. I’m always excited to connect with people who share similar passions or offer different perspectives.
 
